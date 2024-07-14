@@ -1,0 +1,1 @@
+Link al report: https://lookerstudio.google.com/reporting/99c3192c-5222-4f62-86db-8f132a3bd7b4/page/p_5ge06ha3id
